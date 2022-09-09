@@ -5,11 +5,9 @@ permalink: /about/
 published: true
 ---
 
-Some information about you!
+Writer. Idea man. Authorial speaker. Hardware repair. Potential dentist (because my hands are wonderful).
 
 ### More Information
-
-Writer. Idea man. Authorial speaker. Hardware repair. Potential dentist (because my hands are wonderful).
 
 History and ongoing: PlayerAuctions, GamersDecide; FandomSpot; Growtopia University; Shad4w's Official Craft; University Council Secretary
 
@@ -22,6 +20,7 @@ History and ongoing: PlayerAuctions, GamersDecide; FandomSpot; Growtopia Univers
 - Right now, I'm in a dental college I passed with my hands and writing skills. I aced several of these admission tests (one in particular was a pages-long essay questionnaire).
 
 **About my pieces:**
+
 - I write with style. I'm a big fan of wordplay. Have you heard of Bo Burnham? Nellie McKay?
 - I choose not to be esoteric. Rather, I'm just consistent. I believe profoundness should come from the point made.
 - I practice using the AP Stylebook, occasionally dabbling on Faulkner's style for giggles, and on my way to doing other writing ventures.
