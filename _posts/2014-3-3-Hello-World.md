@@ -9,9 +9,9 @@ First of all, I suck at writing lengthy things when it's about me. I like writin
 
 So I thought,
 
-> "Why don't I make this as a hub for me and my buddies? Here, we can share ideas and paste things directly from Google Docs on badass website."
+> "Why don't I make this as a hub for me and my buddies? Here, we can share ideas and paste things directly from Google Docs on a badass website."
 
-Thus, the website where I run off with my mouth unhinged is born! This is also where I decided to keep my thoughts, because Dreamwidth, Spacehey, and other blogging platforms just don't do it.
+Thus, the website where I run off with my mouth unhinged is born! This is also where I decided to keep my thoughts, because Dreamwidth, Spacehey, and other blogging platforms just won't do it.
 
 Also, the girlfriend inspired me to build this simple ol' reliable. It isn't beautiful in any way, but should suffice for both personal journalism and functional portfolio pieces. If you want to talk with with me, throw away your shot, because life's too unfair not to.
 
