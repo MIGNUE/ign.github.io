@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 Put down your thoughts on whether we should have a forum.
 
