@@ -6,17 +6,17 @@ published: true
 ---
 Know more about the Author.
 
+This probably won't be as cohesive and organic as interacting with me, but it helps to know some _background_ on the people you're following.
+
 > Writer. Idea man. Authorial speaker. Hardware repair. Potential dentist (because my hands are wonderful).
 
-This probably won't be as cohesive and organic as interacting with me, but it helps to know some _background_ on the people you're following.
+I'm Lael, a dumb dentistry student and your super smart linguist. I had a head injury, that's all you need to know. Most times, I'm a jack-of-all-trades. Other times, I hyper-fixate on learning one thing at a time.
 
 ## More Information
 
 Previously worked at PlayerAuctions, GamersDecide; FandomSpot; Growtopia University; Shad4w's Official Craft; and in the university as the Student Council Secretary. _(wink)_
 
 To be more specific, I do creative non-fiction, non-fiction, and technical writing. If you're looking for fiction, you're better off consulting my partner at p0ltervale@gmail.com.
-
-I'm Lael, a dentistry student and linguistic savant. I had a head injury, that's all you need to know.
 
 ## Quick credentials:
 - Having written a minor opinion piece for Time Magazine in March 2018
