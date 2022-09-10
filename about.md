@@ -6,19 +6,24 @@ published: true
 ---
 Know more about the Author.
 
+
 This probably won't be as cohesive and organic as interacting with me, but it helps to know some _background_ on the people you're following.
 
 > Writer. Idea man. Authorial speaker. Hardware repair. Potential dentist (because my hands are wonderful).
 
-I'm Lael, a dumb dentistry student and your super smart linguist. I had a head injury, that's all you need to know. Most times, I'm a jack-of-all-trades. Other times, I hyper-fixate on learning one thing at a time.
+I'm Lael, a dentistry student and your super smart linguist. I had a head injury, that's all you need to know. 
 
-## More Information
+### For the hungrier
 
-Previously worked at PlayerAuctions, GamersDecide; FandomSpot; Growtopia University; Shad4w's Official Craft; and in the university as the Student Council Secretary. _(wink)_
+Most times, I'm a jack-of-all-trades. Other times, I hyper-fixate on learning one thing at a time. Sometimes I write, and other times people applaud me for giving them ideas. I'm an authorial speaker — meaning I'm the occasional killjoy, but most importantly... I'm capable of learning medicine!
 
-To be more specific, I do creative non-fiction, non-fiction, and technical writing. If you're looking for fiction, you're better off consulting my partner at p0ltervale@gmail.com.
+Sort of.
 
-## Quick credentials:
+I'm struggling right now, but trying my best to advance my career in the right direction. If you're the "guiding light" type of person, listen.
+
+Teach me like I'm an absorbent sponge that fits any mold you desire. Sometimes, I'll even do it for _free_.
+
+## Quick credentials
 - Having written a minor opinion piece for Time Magazine in March 2018
 - Writing for 2+ game websites
 - Moderating servers and video game communities since 2010. Owned a community, built from the ground to 42K+ members
@@ -27,7 +32,13 @@ To be more specific, I do creative non-fiction, non-fiction, and technical writi
 - Two-year back-to-back member in the local theatre club
 - Scriptwriting "The Little Red Hen" & "Pride & Prejudice", to name a few. I also wrote emcee scripts.
 
-## About my pieces:
+## Relevant experiences
+
+Previously worked at PlayerAuctions, GamersDecide; FandomSpot; Growtopia University; various Minecraft Classic servers; and in the university as the Student Council Secretary.
+
+To be more specific, I do creative non-fiction, non-fiction, and technical writing. If you're looking for fiction, you're better off consulting my partner at p0ltervale@gmail.com.
+
+## About my pieces
 
 - I write with style. I’m a big fan of wordplay. Have you heard of Bo Burnham? Nellie McKay?
 - Thanks to being in the theatre club and being taught by amazing English teachers, I can write about most things under the sun.
