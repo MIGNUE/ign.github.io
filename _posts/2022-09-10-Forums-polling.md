@@ -1,7 +1,7 @@
 ---
 published: true
 ---
-Put down your thoughts on whether we should have a forum.
+Put down your thoughts on whether we should have a forum
 
 This becomes more relevant in the far future where I do build a base with like-minded peers wanting to chime in on some ideas. I know for sure that my best friends would be the first supporters. Once I set up the Disqus, you're free to let me know ahead of time (perhaps in a few years) what you think!
 
