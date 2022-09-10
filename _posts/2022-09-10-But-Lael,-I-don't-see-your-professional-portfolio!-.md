@@ -1,7 +1,7 @@
 ---
 published: true
 ---
-Link below for my public portfolio.
+Find my public portfolio here
 
 [Public portfolio](https://ayo.so/ign)
 
