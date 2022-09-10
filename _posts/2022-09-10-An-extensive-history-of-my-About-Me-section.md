@@ -1,5 +1,5 @@
 ---
-published: true
+published: false
 ---
 If you're reading this, you're probably looking at an Alpha stage version of my website. These are the changes I've made to the About Me section so far. Workin' honest because I can.
 
