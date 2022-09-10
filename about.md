@@ -15,13 +15,15 @@ I'm Lael, a dentistry student and your super smart linguist. I had a head injury
 
 ### For the hungrier
 
-Most times, I'm a jack-of-all-trades. Other times, I hyper-fixate on learning one thing at a time. Sometimes I write, and other times people applaud me for giving them ideas. I'm an authorial speaker — meaning I'm the occasional killjoy, but most importantly... I'm capable of learning medicine!
+Most times, I'm a jack-of-all-trades. Other times, I hyperfocus on learning one thing at a time. People have convinced me I deliver great ideas. (I should begin patenting soon.) I'm an authorial speaker — meaning I'm the occasional killjoy, but most importantly... I'm capable of learning medicine!
 
 Sort of.
 
+Oh, forget it. I'd rather mess with technological gim-gams.
+
 I'm struggling right now, but trying my best to advance my career in the right direction. If you're the "guiding light" type of person, listen.
 
-Teach me like I'm an absorbent sponge that fits any mold you desire. Sometimes, I'll even do it for _free_.
+Teach me like I'm an absorbent sponge fit for doing great things.
 
 ## Quick credentials
 - Having written a minor opinion piece for Time Magazine in March 2018
