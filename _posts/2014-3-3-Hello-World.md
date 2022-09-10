@@ -3,7 +3,7 @@ layout: post
 title: 'Welcome, pioneers and lurkers!'
 published: true
 ---
-Know why I created the blog!
+Know why I created the blog
 
 First of all, I suck at writing lengthy things when it's about me. I like writing explanations when I do them for other people, but the reason why I haven't had a website for so long is because I'm bad at managing them.
 
