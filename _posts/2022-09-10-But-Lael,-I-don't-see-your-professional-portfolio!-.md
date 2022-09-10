@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 Link below for my public portfolio.
 
