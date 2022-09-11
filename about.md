@@ -60,7 +60,4 @@ The tools I use are Google Docs, Microsoft Word, Celtx, and what have you. My gr
 
 [ldignacio@protonmail.com](mailto:ldignacio@protonmail.com)
 
-<iframe
-  src="https://zbd.gg/embed/crux"
-  style="width:100%; height:300px;"
-></iframe>
+<iframe width="840" height="345" src="https://zbd.gg/embed/crux" frameborder="0" />
