@@ -5,9 +5,11 @@ Ideas?
 
 As you know, I named the website "Fresh as Mints" as homage to my best friend's name suggestion. They allowed me to post their works here which are fantastic. She usually works on fiction and likes playing Genshin Impact.
 
+In my opinion, Fresh as Mints strikes me like this scenario in class where people would try to rob the only person with chewing gum. Mint sounds a little similar, except that people ask for mints when there's no gum left and they're ridding themselves of anxiety, hunger, and potentially sickness.
+
 As an extension of this already awesome name, I thought...
 
-> Perhaps we could add a pun. What about "Mintosey"?
+> "Perhaps we could add a pun. What about "Mintosey"?"
 
 I know, I know. These ideas should be patented! But with the way things are, it's better that I first write about it to make sure I can prove I did it first. Thanks to GitHub, it shows every date and every edit precisely when I've uploaded the file.
 
