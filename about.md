@@ -56,6 +56,6 @@ The tools I use are Google Docs, Microsoft Word, Celtx, and what have you. My gr
 4. Gaming (do not ask me about first-person shooters)
 5. Listening to music
 
-### Contact me
+## Contact me
 
 [ldignacio@protonmail.com](mailto:ldignacio@protonmail.com)
