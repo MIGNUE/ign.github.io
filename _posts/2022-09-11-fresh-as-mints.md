@@ -7,7 +7,7 @@ As you know, I named the website "Fresh as Mints" as homage to my best friend's 
 
 In my opinion, Fresh as Mints strikes me like this scenario in class where people would try to rob the only person with chewing gum. Mint sounds a little similar, except that people ask for mints when there's no gum left and they're ridding themselves of anxiety, hunger, and potentially sickness.
 
-Meanwhile, "Mintsarewithme" reminds me of both the meanings I've described and "to mint", meaning to create something **fresh** and new. Aha!
+Meanwhile, "Mintsarewithme" reminds me of both the meanings I've described and "to mint", meaning to create something **fresh** and new. Or to associate with the big bucks. Aha!
 
 But I digress. As an extension of this already awesome name, I thought...
 
